@@ -1,0 +1,1 @@
+Hola, en este momento estoy de viaje y vuelvo la semana q viene, especificamente el sabado 21 de enero, por lo que queria pedir una extension de los plazos para la entrega. Es un viaje que tenia previamente pactado y me coincidio con la semana previa y la semana de la entrega. 
